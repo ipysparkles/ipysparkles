@@ -3,8 +3,11 @@
 // dni AI users... P.U. bro.. and basic dni ofc
 
 ♡ socially anxious and shy gulp gimme some time to warmup plss im so freaking cool once i do trusttt ♡
+
 usually second monitoring ponytown, may be distracted but always open to talk!
+
 goth as fuck but like in a non-chalant way (lie) 
+
 ᓚᘏᗢ ᵐᵉᵒʷ
 ----------------------------------------------------------------------------- 
 
